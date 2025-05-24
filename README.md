@@ -1,0 +1,1 @@
+# Cbc-industrial-equipments
